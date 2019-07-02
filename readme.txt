@@ -1,4 +1,4 @@
-thanks for downloading deathrow source
+thanks for checking out deathrow source.
 
 i dont recommend using it as it is cuz its messy and me and dutu blindly pasted shit in it
 however its better than eternity and other free cheats. have fun and dm me on discord (omi#9046)
